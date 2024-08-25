@@ -1,7 +1,8 @@
 ![image](https://github.com/user-attachments/assets/c1946424-f799-4b96-a062-2ca0cf70537c)
 
 
-![9-discord-nitro-icons-free-in-svg-15232](https://github.com/user-attachments/assets/f3ff2933-0cce-4710-a7d6-039285edffe4)
+![9-discord-nitro-icons-free-in-svg-15232](https://github.com/user-attachments/assets/f3ff2933-0cce-4710-a7d6-039285edffe4)                   ![nitrodiscord](https://github.com/user-attachments/assets/aca1c6f7-fcc2-4fdc-84f5-deaa5e3df063)
+
 
 
 
